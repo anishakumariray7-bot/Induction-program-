@@ -11,10 +11,10 @@
   
 ## Day-1 {CSE} *31July2025*
 ### 08:30am to 10:00am 
-- *GURDWARA SAHIB*:- We went gurdwara sahib to get blessings of WAHEGURU Before started our journey at GNDEC.
-- After that we observe,the shape of GURDWARA SAHIB is similar to ship.
-- In punjabi we say that,*"Waheguru naam jahaz hai chare so utre paar"*
+- *GURDWARA SAHIB*:- We went gurdwara to the sahib to get the blessings of Waheguru Before starting our journey at GNDEC.
+- After that, we observed that the shape of the Gurdwara Sahib is similar to a ship.
+- In punjabi, we say,*"Waheguru naam jahaz hai, chare so utre paar."*
 
 ### 10:00am to 10:30am
-- After that,we all have take tea, drinks soft drinks and extra many more.
-- Then we went towards AUDITORIUM.
+- After that,we had take tea, drinks,soft drinks, and many other refreshments.
+- Then we went towards the Auditorium.
