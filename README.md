@@ -49,7 +49,7 @@
 - *Placement*:– the ultimate goal when all else above is secured
 
 - Her message was concise yet strong: when we prioritize these values, not only will we find placement, but we'll become confident, capable individuals.
-### *Speaker*: Dr. Sehijpal Singh (principal)
+### *Speaker*: Dr. Sehijpal Singh (Principal)
 - Topic: Living Style & Recognizing Your Potential
 - Message: Dr. Sehijpal sir, with his calm voice and witty style, reminded us that our lifestyle reflects who we are. He told us to stay disciplined, respectful, and true to ourselves.  - Most importantly, he encouraged us to believe in our potential — because we’re often capable of much more than we think.
 
