@@ -178,9 +178,50 @@
 - Topic: Motivation & Closing Note
 - Message: Jasvir Singh said there would be no separate lecture since Dr. Lakhbir Singh Khanna’s session extended till 4 PM. Instead, he gave us a few words of encouragement, motivated    everyone, and ended warmly with, “Thank you so much".
 # Day-8 (7 August 2025)
-
-
-
-
-
-
+## (09:30 – 12:30 PM)
+### Speaker: Amit Karma (Incharge, DMC)
+- Topic: Introduction to Seniors & DMC Opportunities
+- Message: Amit Karma sir made us meet our talented seniors, who are amazing video editors and creative content makers.
+- He showed us one of their videos, and honestly, it looked super professional and inspiring.
+- Sir said that if we also want to be part of DMC, we should create our own high-quality video and submit it.
+- It felt motivating to see what we can achieve if we put in effort and creativity.
+### *Speaker:* Randhir Singh
+- Topic: How Exams Will Be Conducted
+- Message: Randhir Singh sir explained everything about exams in a very clear way.
+- He told us how to pay the exam fees and even where to get the Wi-Fi password. Our internal exam will be of 40 marks, and we need at least 16 to pass. The external exam will be of 60 marks, and we must score at least 24 to pass.There will also be a 50-mark lab or practical exam.
+- Sir also encouraged us to join at least one club like NCC or NSS to learn new skills.
+- He reminded us that 75% attendance is a must if we want to sit for the exams.
+## 12:30 to 01:30 PM
+### Break 
+## 01:30 TO 02:30 PM (BEEE Lecture)
+- There Will be a Lecture of BEEE of Prof. Harminder kaur in ME Seminar Hall and which was amazing.
+## 02:30 to 03:30 PM
+- We interact with our senoirs.
+- And, this interaction session was really good.
+# Day-9 (8 August 2025)
+## 09:00 to 10:30 AM
+### *Speaker*: Mrs. Shaffy Makkar 
+- Topic: Millet Super Food
+- Message: Millets are often called a "superfood" due to their exceptional nutritional value and numerous health benefits. They are packed with essential nutrients like fiber, protein,     vitamins, and minerals.
+- Rich in nutrients:
+  Millets are a great source of complex carbohydrates, protein, fiber, and various vitamins and minerals like calcium, iron, magnesium, potassium, and zinc. 
+- High in fiber:
+  The high fiber content in millets aids digestion, promotes satiety, and can help with weight management. 
+- Gluten-free:
+  This makes them a suitable alternative for individuals with gluten sensitivities or celiac disease. 
+- Low glycemic index:
+  Millets have a low glycemic index, meaning they don't cause rapid spikes in blood sugar levels, which is beneficial for managing diabetes. 
+- Antioxidant properties:
+  Millets contain antioxidants that help protect the body against cell damage and chronic diseases. 
+*Health Benefits*
+- Improved digestion:
+  The fiber in millets promotes healthy bowel movements and can help relieve constipation. 
+- Weight management:
+  High fiber and protein content can help with weight loss and maintenance by increasing feelings of fullness. 
+- Heart health:
+  Millets can help lower cholesterol levels and reduce the risk of heart disease.
+### 10:30 to 12:30 PM (Maths lecture)
+It was a amazing session by Prof. Gagandeep Kaur Lotey in TCC Seminar Hall.
+                    ## END
+                
+# *THANK-YOU* 😊👍
