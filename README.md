@@ -5,7 +5,7 @@
 - *Section- A1*
 - *Registration Number:25103146*
 - *Mobile Number:9798566535*
-- *E-maill:anishakumariray@gmail.com*
+- *E-maill:anishakumariray7@gmail.com*
 - ![WhatsApp Image 2025-08-02 at 23 05 51_4b9260a8](https://github.com/user-attachments/assets/459d2908-7b38-4458-bad5-d45ec69736ec)
  
   
